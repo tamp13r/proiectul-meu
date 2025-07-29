@@ -1,4 +1,4 @@
 Buna ziua.
-Trimiteti va rog CV-ul dumneavoastra.
-Va multumesc.
-O zi buna.
+Aseara te-am sunat
+Erai prea suparat
+S-aud doar vocea ta
